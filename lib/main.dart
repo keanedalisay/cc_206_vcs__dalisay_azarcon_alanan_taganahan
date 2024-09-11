@@ -1,7 +1,7 @@
 /*
 *
 * 1. DALISAY, Keane Emanuel "To be interesting, be interested"
-* 2. AZARCON, Aaron John
+* 2. AZARCON, Aaron John "Im a Brat when I'm bumping that"
 * 3. TAGANAHAN, Domenic
 * 4. ALANAN, Nel Adryan
 *
